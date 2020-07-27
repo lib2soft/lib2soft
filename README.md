@@ -1,1 +1,1 @@
-lib2soft ©
+lib2soft © | 2020
